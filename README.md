@@ -1,6 +1,6 @@
 <div align="center">
 	<img src="https://github.com/xerosene/xerosene/assets/132354142/ebfbd1d9-ef27-4422-b76f-89d776966110"> <img src="https://i.postimg.cc/jSHDWkt4/Untitled512-20220917095323.png">
-</div> <div align="center"> 𓎢 you can call me 𝐛𝐞𝐧𝐣𝐚𝐦𝐢𝐧, icedancer or mack͟e͟n͟z͟i͟e͟ — <a href="https://en.pronouns.page/@icedancer">t</a>hey/them </div>
+</div> <div align="center"> 𓎢 you can call me 𝐛𝐞𝐧𝐣𝐚𝐦𝐢𝐧 or s͟o͟p͟h͟ia — <a href="https://en.pronouns.page/@icedancer">t</a>hey/them </div>
   </div> <div align="center"> s͟l͟a͟v͟ic // eng & pl</div>
    </div> <div align="center"> 𝗜'𝗺 𝘁𝗮𝗸𝗲𝗻, don't flirt with me</div>
  </div> <div align="center"> 19 y.o — I have ASD, be patient</div>

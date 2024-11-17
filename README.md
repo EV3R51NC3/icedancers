@@ -4,7 +4,8 @@
   </div> <div align="center"> s͟l͟a͟v͟ic // eng & pl</div>
    </div> <div align="center"> 𝗜'𝗺 𝘁𝗮𝗸𝗲𝗻, don't flirt with me</div>
  </div> <div align="center"> 19 y.o — I have ASD, be patient</div>
- </div> <div align="center">I sit at spawn / feel free to sit with me !</div>
+ </div> <div align="center">I sit at spawn / near the bakery feel free to sit with me !</div>
+ </div> <div align="center">Usually on +18, however I go on safe to interact with sv/crp fandoms</div>
   </div> <div align="center">⟢.˚</div>
    </div> <div align="center">┍━━━━━━━━━━━━━━━━━━━━━━━»•» 𝄞 «•«━┑</div>
    </div> <div align="center"> 𝗗𝗡𝗜 𝗶𝗳:</div>
@@ -16,5 +17,5 @@
      </div> <div align="center"> my links </div>
         </div> <div align="center"> <a href="https://vampirehunters.carrd.co">carrd</a> ☆ <a href="https://icedancer.atabook.org/">atabook</a> </div> 
        <div align="center">
-	<img src="https://64.media.tumblr.com/efd6de47f2e9d7f35eb155d74453b47e/704f4ace9de71c4b-98/s250x400/71a3028e25c7249c9a72a87dc3d8f2583e50f8ad.gif">
+	<img src="https://64.media.tumblr.com/cc54c34993a8544ddc3a3b6db4f62daf/be76a2a34d9faf64-07/s1280x1920/0aa1a01d2677fd306ddae68c83927fdaa88dcebd.pnj">
  

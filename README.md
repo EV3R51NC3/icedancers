@@ -17,5 +17,5 @@
      </div> <div align="center"> my links </div>
         </div> <div align="center"> <a href="https://vampirehunters.carrd.co">carrd</a> ☆ <a href="https://icedancer.atabook.org/">atabook</a> </div> 
        <div align="center">
-	<img src="https://64.media.tumblr.com/cc54c34993a8544ddc3a3b6db4f62daf/be76a2a34d9faf64-07/s1280x1920/0aa1a01d2677fd306ddae68c83927fdaa88dcebd.pnj">
+	<img src="https://64.media.tumblr.com/0a42d13261d9142de34382163a29ca53/d562cf6483d6f88d-b4/s1280x1920/e52c99e2d16bf4bb7ba712c50a33a656e99feb5f.pnj">
  
